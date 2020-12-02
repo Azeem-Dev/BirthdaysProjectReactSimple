@@ -8,7 +8,7 @@ CodingAdict from Youtube
 
 
 ## Coding Addict Channel Link
-[https://www.youtube.com/channel/UCMZFwxv5l-XtKi693qMJptA]
+https://www.youtube.com/channel/UCMZFwxv5l-XtKi693qMJptA
 
 
 ## To get started
